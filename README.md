@@ -1,4 +1,4 @@
-![image](https://github.com/xtaci/buddha/assets/2346725/b5a0790a-ebf4-4bd2-9923-a1020dbd7aa1)
+![250285819-b5a0790a-ebf4-4bd2-9923-a1020dbd7aa1 (1)](https://github.com/user-attachments/assets/c172fdd3-4e07-4333-8f95-e9a57bbeee40)
 
 
 <strong>
